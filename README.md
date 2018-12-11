@@ -1,0 +1,1 @@
+# FF14-Action-List-to-KR
